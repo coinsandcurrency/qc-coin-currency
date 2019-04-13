@@ -1,1 +1,1 @@
-# qc-coin-currency
+I am a coin collector that has collected coins and bills for two years now. I have all types of coins like dollar coins, pennies, nickels, dimes, and more. My coins are avaiable for great prices, use my google account to send me a notification if you would like to purchase a coin.
